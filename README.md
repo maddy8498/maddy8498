@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @maddy8498
-- 👀 I’m interested in ... medicine>surgery>general surgery, sometimes gaming 
+- 👀 I’m interested in ... medicine>surgery>general surgery, research in the medical field, sometimes gaming 
 - 🌱 I’m currently learning ... to punjabi music 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... instagram @battlefield_baymax. here 
